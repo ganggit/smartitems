@@ -1,0 +1,2 @@
+# smartitems
+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
